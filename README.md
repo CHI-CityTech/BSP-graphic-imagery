@@ -4,4 +4,6 @@ Our team collaborates closely with the head scriptwriter to ensure that every vi
 
 This archive serves as both a historical record and a creative resource, documenting our artistic evolution while providing inspiration for future projects.
 
+________________________________________________________________________________________________________
+
 Offfical BSP Graphic Imagery Project Wikipedia: https://github.com/CHI-CityTech/BSP-graphic-imagery/wiki
