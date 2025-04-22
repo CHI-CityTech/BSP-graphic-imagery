@@ -1,4 +1,4 @@
-where visual storytelling is shaped through a blend of traditional and digital art forms. This collection features work from a collaborative team with backgrounds in illustration, textiles, puppet design, AI-generated imagery, and digital editing. From handcrafted textures to animated backdrops, each visual element plays a role in building the world of our production.
+Welcome to the BSP Graphic Imagery Archive, where visual storytelling is shaped through a blend of traditional and digital art forms. This collection features work from a collaborative team with backgrounds in illustration, textiles, puppet design, AI-generated imagery, and digital editing. From handcrafted textures to animated backdrops, each visual element plays a role in building the world of our production.
 
 ________________________________________________________________________________________________________
 
